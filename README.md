@@ -4,7 +4,7 @@
 - 💞️ I want to cooperate with a company that pays attention to employees who want to know more. The company, which will share its experience with me, and I will fully dedicate myself  to work with. I'm ready to take action
 - 📫 How to reach me? You have few options for this :)
 1) E-mail - [Send me a letter](maksym.khomich@gmail.com)
-2) LinkedIn - [Look at my LinkedIn profile](https://www.linkedin.com/in/maksym-k-a44307247)
+2) LinkedIn - [Look at my LinkedIn profile](https://www.linkedin.com/in/maksym-khomich/)
 
 I'm open to your offers. 
 
